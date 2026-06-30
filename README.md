@@ -1,2 +1,3 @@
 # Smriti
-I am a great learner and I like to explore new things
+Confident not loud,Silent not weak
+love to solve real world problems with technology
